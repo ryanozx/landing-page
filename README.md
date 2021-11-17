@@ -1,6 +1,6 @@
 Image references:
 
-Image by <a href="https://pixabay.com/users/kim_hester-3648659/?utm_source=link-attribution&amp;utm_medium=referral&amp;utm_campaign=image&amp;utm_content=1785760">kim_hester</a> from <a href="https://pixabay.com/?utm_source=link-attribution&amp;utm_medium=referral&amp;utm_campaign=image&amp;utm_content=1785760">Pixabay</a>
+Picture of two dogs: Image by <a href="https://pixabay.com/users/kim_hester-3648659/?utm_source=link-attribution&amp;utm_medium=referral&amp;utm_campaign=image&amp;utm_content=1785760">kim_hester</a> from <a href="https://pixabay.com/?utm_source=link-attribution&amp;utm_medium=referral&amp;utm_campaign=image&amp;utm_content=1785760">Pixabay</a>
 
 Chief Exe-cute-ive Wooficer:
 Image by <a href="https://pixabay.com/users/elvisclth-448505/?utm_source=link-attribution&amp;utm_medium=referral&amp;utm_campaign=image&amp;utm_content=1381186">Cedric Clth</a> from <a href="https://pixabay.com/?utm_source=link-attribution&amp;utm_medium=referral&amp;utm_campaign=image&amp;utm_content=1381186">Pixabay</a>
